@@ -2,6 +2,10 @@
 
 El guarapo es una bebida tradicional de los Llanos Orientales, hecha a partir del jugo fermentado de la caña de azúcar. Es refrescante, ligeramente dulce y con un toque ácido característico de su fermentación.
 
+
+
+Rony es un care monda JJIJIJIJIJIIJIJIJIJIJI
+
 ## Información General
 
 | Propiedad | Valor |
